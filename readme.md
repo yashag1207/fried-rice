@@ -1,0 +1,1 @@
+this is my fried rice recipe which is made by me many times .do try it 
